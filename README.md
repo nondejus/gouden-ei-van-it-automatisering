@@ -1,1 +1,5 @@
-# wie-maakt-er-uberhaupt-gebruik-van-online-betalingsverkeer
+-----------------------------------
+| gouden ei van it automatisering |
+-----------------------------------
+
+humams obsolete
